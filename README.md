@@ -1,2 +1,0 @@
-# Omy-biriyani-
-OMY BIRIYANI KORAON WEBSITE 
